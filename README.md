@@ -28,7 +28,7 @@
 
 ## 📫 Cómo contactarme
 - ✉ **Email:** santiago_95_10_@hotmail.com 
-- 💼 **LinkedIn:** [Tu perfil](www.linkedin.com/in/santiago-zapata-villada-83a716177)  
+- 💼 **LinkedIn:** [www.linkedin.com/in/santiago-zapata-villada-83a716177](www.linkedin.com/in/santiago-zapata-villada-83a716177)  
 - 🌐 **Portafolio:** *Próximamente*
 
 ---
